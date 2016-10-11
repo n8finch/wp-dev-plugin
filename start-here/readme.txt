@@ -1,0 +1,1 @@
+https://generatewp.com/plugin-readme/
